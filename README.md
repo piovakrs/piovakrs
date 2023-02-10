@@ -3,3 +3,4 @@ gosto muito de jogos
 sou apaixonado  por carros  tamb cultura pop cinema quadrinhos etc 
 gosto de ler livros relacionado a fisica quantica 
 gosto de calistenia 
+o
